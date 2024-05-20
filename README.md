@@ -1,0 +1,2 @@
+# wajahat-.-bot
+ssp
